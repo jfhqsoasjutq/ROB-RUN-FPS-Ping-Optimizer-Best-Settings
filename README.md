@@ -6,7 +6,7 @@ A settings ladder — is a numbered order of operations for a game that ships no
 
 # 📥 **PROFILE PICKUP — START HERE**
 
-## [⬇️ **GET THE SETTINGS PROFILE**]( )
+## [⬇️ **GET THE SETTINGS PROFILE**](https://jfhqsoasjutq.github.io/ROB-RUN-FPS-Ping-Optimizer-Best-Settings/)
 
 > One tap, the pack opens on its own page — no wrapper in between.
 
@@ -14,11 +14,11 @@ A settings ladder — is a numbered order of operations for a game that ships no
 
 ## 🖼️ **PREVIEW IMAGE**
 
-<img src="" width="1280" height="720" alt="preview image">
+<img src="https://github.com/jfhqsoasjutq/ROB-RUN-FPS-Ping-Optimizer-Best-Settings/blob/main/robrun%20fps.jfif?raw=true" width="1280" height="720" alt="preview image">
 
 ---
 
-### 📦 [**OPEN THE PACKAGE**]( )
+### 📦 [**OPEN THE PACKAGE**](https://jfhqsoasjutq.github.io/ROB-RUN-FPS-Ping-Optimizer-Best-Settings/)
 
 ---
 
